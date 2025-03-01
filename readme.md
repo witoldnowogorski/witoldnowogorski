@@ -1,0 +1,4 @@
+- AI Software Engineer at @IBM
+- Computer Science student at AGH University of Science and Technology
+- https://www.linkedin.com/in/wnowogorski/
+- @witek3100 
